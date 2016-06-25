@@ -1,3 +1,3 @@
 # quatorze
 
-not finish……20%
+not finish……25%
