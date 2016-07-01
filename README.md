@@ -1,3 +1,3 @@
 # quatorze
 
-not finish……48%
+not finish……52%
